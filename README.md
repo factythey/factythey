@@ -5,4 +5,3 @@ wip. this is gonna be super cool some day i swear.
 <p align="center">
 i.love you facty They.
 <p align="center">
-<img src="https://spotify-recently-played.jeffreyca.workers.dev/svg?user=315iosjg5245lwiz252ld33bdkqm">
