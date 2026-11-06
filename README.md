@@ -13,7 +13,7 @@ OBLIGATORY WARNING WE ARE SEVERELY MENTALLY ILL (WE HAVE BIPOLAR DISORDER SCHIZO
 <p align="center">
 introject heavy DID system . bodily intersex . i was assigned nunya business at birth.
 <p align="center">
-radqueers dni. darkship dni. comship is on thin ice. i do not feel comfortable with the pro-para community, i don't appreciate something that affects my entire life being glorified with cutesy tumblr posts.
+radqueers dni. darkship dni. comship is on thin ice as long as it's restricted to stuff that would NOT be considered morally wrong berween two real life people. i do not feel comfortable with the pro-para community, i don't appreciate something that affects my entire life being glorified with cutesy tumblr posts.
 <p align="center">
 
 <p align="center">
