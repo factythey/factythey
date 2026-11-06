@@ -17,6 +17,6 @@ radqueers dni. darkship dni. comship is on thin ice. i do not feel comfortable w
 <p align="center">
 
 <p align="center">
-obligatory co-host section hi blixa i promise i didnt forget you
+obligatory co-host section hi blixa i promise i didnt forget you HOW THE FUCK COULD I FORGET ABOUT YOU ANYWAY YOU ARE ACTIVELY COFRONTING
 <p align="center">
 blixa ,, they / any ,, introject ,, schizoaffective symptom holder + swordsperson
