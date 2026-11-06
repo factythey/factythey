@@ -9,7 +9,7 @@ robin / robbie ,, he/him ,, human non-conforming ,, syshost & fincktroject (i th
 <p align="center">
 industrial music is a special interest of ours.
 <p align="center">
-OBLIGATORY WARNING WE ARE SEVERELY MENTALLY ILL (WE HAVE BIPOLAR DISORDER SCHIZOAFFECTIVE DISORDER HEAVY SUSPECTED BPD AND DPD COMORBID BUT CANT SAY ANYTHING DUE TO THE SHITTY MENTAL HEALTH SYSTEM OF AUSTRALIA)
+OBLIGATORY WARNING WE ARE SEVERELY MENTALLY ILL (WE HAVE AUTISM ADHD GENERALIZED ANXIETY BIPOLAR DISORDER SCHIZOAFFECTIVE DISORDER HEAVY SUSPECTED BPD AND DPD COMORBID HEAVILY SUSPECTED OCD BUT CANT SAY ANYTHING DUE TO THE SHITTY MENTAL HEALTH SYSTEM OF AUSTRALIA)
 <p align="center">
 introject heavy DID system . bodily intersex . transboygirl (mostly boy) . i was assigned nunya business at birth.
 <p align="center">
