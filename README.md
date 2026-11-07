@@ -7,7 +7,7 @@
 <p align="center">
 robin / robbie ,, he/him ,, human non-conforming ,, syshost & fincktroject (i think i was clever with that one its been in my head all day please laugh)
 <p align="center">
-industrial music is a special interest of ours.
+industrial music is a special interest of ours. favourite bands at the moment are acumen (and side projects), nine inch nails and einstürzende neubauten. we like razorbliss too but genuinely nobody fucking knows them they only have 15 monthly listeners and a few concert recordings on youtube from 2011 and earlier. GIVE IT ALL TO ME!!!!! i also like other genres i swear its just really hard to think of any
 <p align="center">
 OBLIGATORY WARNING WE ARE SEVERELY MENTALLY ILL (WE HAVE AUTISM ADHD GENERALIZED ANXIETY BIPOLAR DISORDER SCHIZOAFFECTIVE DISORDER HEAVY SUSPECTED BPD AND DPD COMORBID HEAVILY SUSPECTED OCD BUT CANT SAY ANYTHING DUE TO THE SHITTY MENTAL HEALTH SYSTEM OF AUSTRALIA)
 <p align="center">
