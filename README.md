@@ -11,7 +11,7 @@ industrial music is a special interest of ours. favourite bands at the moment ar
 <p align="center">
 OBLIGATORY WARNING WE ARE SEVERELY MENTALLY ILL (WE HAVE AUTISM ADHD GENERALIZED ANXIETY BIPOLAR DISORDER SCHIZOAFFECTIVE DISORDER HEAVY SUSPECTED BPD AND DPD COMORBID HEAVILY SUSPECTED OCD BUT CANT SAY ANYTHING DUE TO THE SHITTY MENTAL HEALTH SYSTEM OF AUSTRALIA)
 <p align="center">
-beatlemaniacs please refrain from talking to us about the beatles as we were just recently heavily mentally harmed by an ex-"friend" group that almost exclusively consisted of beatlemaniacs. and also just the beatles fanbase sucks in general
+beatlemaniacs please refrain from talking to us about the beatles as we were just recently heavily mentally harmed by an ex-"friend" group that almost exclusively consisted of beatlemaniacs and only liked the beatles for the members being "sexy". and also just the beatles fanbase sucks in general
 <p align="center">
 introject heavy DID system . bodily intersex obviously bodily what do you think i am . transboygirl (mostly boy) . i was assigned nunya business at birth.
 <p align="center">
